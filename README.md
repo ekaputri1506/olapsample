@@ -5,6 +5,6 @@ Please download/fork all my files in your computer then open it by *Google Chrom
 Click Content to see the graph and statistic data.
 I created and analyzed it using SPSS and HTML.
 
-E-mail: renniekaputri15@gmail.com </br>
-WA/Mobile: +62-81905146181
+E-mail: renniekaputri1982@gmail.com </br>
+
 
